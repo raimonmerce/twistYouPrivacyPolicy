@@ -34,4 +34,4 @@ We may update this Privacy Policy at any time. The latest version will always be
 ## 6. Contact
 
 If you have any questions or concerns about this Privacy Policy, you can contact us at:
-twistyouapp.com
+twistyouapp@gmail.com
